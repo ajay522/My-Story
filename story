@@ -1,0 +1,1 @@
+there is a cat in a room.nthere is a dog too. the cat is a afarid . 
